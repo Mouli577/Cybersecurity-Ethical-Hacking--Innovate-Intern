@@ -1,1 +1,1 @@
-# Cybersecurity-Ethical-Hacking--Innovate-Intern
+# Cybersecurity & Ethical-Hacking Internship--Innovate Intern
